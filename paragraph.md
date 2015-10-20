@@ -1,0 +1,5 @@
+The design of huizhou merchant hall is primarily aim at repair and preserve the original hall. To both emphasize the nave and keep the culture and regional character of the nave itself, we use traditional method to deal with the spatial arrangement. Use modern way to deduce the hui-style architectural element and express the ancient chinese special horsehead walls, roof profiles and gutter drainage by concrete, steel and glass.
+
+We use a layout form called "SiShuiGuiTang" in the overall layout, to increase the privacy of the residential building. To mock the three-section style extract from ShanXi hall near by the hall, all three main part can be connected by acrade and seperated by spring, to create the layout of chinese traditional grandens.
+
+In terms of technology, make the pool to become a rainwater collection and circulation device by further interpret the traditional courtyard－style skylight form. Because of frequently loss of water and aim at the preservation of the hall, use a pool surround the hall and keep the fire proof space of wood construction at the sametime, to make the damage in fire as least as possible.
